@@ -1,1 +1,2 @@
-# momose-akira-no-hatsukoi-hatan-chuu
+# Momose Akira no Hatsukoi Hatan-chuu.
+Aucune description.
